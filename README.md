@@ -1,4 +1,4 @@
-<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/03abd786-20a3-4a26-9672-825b7372ed91" />
+![Image](https://github.com/user-attachments/assets/f0480b0e-de9c-4e7f-972d-1f7ed3e20dcc)
 
 [ATABOOK](https://buildermhaterr.atabook.org/)
 

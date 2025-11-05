@@ -3,6 +3,9 @@
 
 I’m not the best at conversations, so sorry if I seem boring or anything
 
+I’m a little bit clingy and random sometimes, so please tell me if you ever feel uncomfortable
+
+
 ⠀⠀⠀[ATABOOK](https://buildermhaterr.atabook.org/)
 
 

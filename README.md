@@ -7,6 +7,7 @@ I’m a little bit clingy and random sometimes, so please tell me if you ever fe
 
 DUDUEDE I LIKE TO MATCH PONIES W PEOPLE LIKE YES LETS GO MAN WE CAN MATCH WHATEVEVR IDCIDCIDC /SRS
 
+Maybe that's all u need to know first 
 
 ⠀⠀⠀[ATABOOK](https://buildermhaterr.atabook.org/)
 

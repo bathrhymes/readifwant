@@ -17,7 +17,7 @@ $${\color{green}devesful \space oooooo \space okay \space just \space testing}$$
 <img width="1557" height="814" alt="Image" src="https://github.com/user-attachments/assets/dc4fd65c-09cd-4ba9-aaf9-ecbba8e39de4" />
 
 
-
+![VISITORS](https://img.shields.io/endpoint?url=https://hits.sh/nolaydolay.json?color=FFD700&labelColor=800080&label=VISITORS&style=for-the-badge)
 
 ⠀⠀⠀[ATABOOK](https://buildermhaterr.atabook.org/)
 

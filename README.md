@@ -5,7 +5,7 @@
 
 2. I’m a little bit clingy and random sometimes, so please tell me if you ever feel uncomfortable
    
-3. I do not copy anyone’s ponies  I make all of them myself. I’m really sorry if any of mine look similar to yours. I do take inspiration from other designs sometimes, but I never try to copy anyone on purpose.
+3. I do not copy anyone’s ponies  I make all of them myself. I’m really sorry if any of mine look similar to yours. I do take inspiration from other designs sometimes, but Ill never try to copy anyone on purpose.
 If you ever notice that one of my ponies looks too similar to yours, please don’t hesitate to tell me. I’ll gladly change it  ! 
 
 4. i like matchin okay bye

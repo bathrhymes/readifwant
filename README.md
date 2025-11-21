@@ -1,29 +1,21 @@
 
 ## rea ts 
 
-I’m not the best at conversations, so sorry if I seem boring or anything
+1. I’m not the best at conversations, so sorry if I seem boring or anything plus english is not my first language soo yeah idkgulps
 
-I’m a little bit clingy and random sometimes, so please tell me if you ever feel uncomfortable
+2. I’m a little bit clingy and random sometimes, so please tell me if you ever feel uncomfortable
+   
+3.I do not copy anyone’s ponies  I make all of them myself. I’m really sorry if any of mine look similar to yours. I do take inspiration from other designs sometimes, but I never try to copy anyone on purpose.
+If you ever notice that one of my ponies looks too similar to yours, please don’t hesitate to tell me. I’ll gladly change it  ! 
 
-DUDUEDE I LIKE TO MATCH PONIES W PEOPLE LIKE YES LETS GO MAN WE CAN MATCH WHATEVEVR IDCIDCIDC /SRS
+4. i like matchin okay bye
+5. minor 18 + iwc okay
+
 
 Maybe that's all u need to know first 
 
 
 
-<img width="1557" height="814" alt="Image" src="https://github.com/user-attachments/assets/dc4fd65c-09cd-4ba9-aaf9-ecbba8e39de4" />
-
-
-
-$${\color{lightgreen}"YOU \space DON'T \space WANNA \space STAY \space THE \space NIGHT?"}$$
-
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=nolaydolay&label=MATT+HATE+CLUB&labelColor=D8E4BC&color=708238&style=flat" alt="Profile views badge"/>
-</p>
-
-
-⠀⠀⠀[ATABOOK](https://buildermhaterr.atabook.org/)
 
 
 
